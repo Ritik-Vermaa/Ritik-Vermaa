@@ -9,7 +9,7 @@
 - 💅 Want to work at: **People**
 - 🌱 Learning more about and studying: **Open Source, CS Algorithms, API, and Space tech**
 - 💬 Ping me about: **wed design**, **thumbnail**, **website dev**, **API**,
-- 📫 Reach me asap: <a href="https://x.com/ritikverma90">Twitter</a> or engineerritik@gmail.com or <a href="https://www.instagram.com/er_ritikverma/">instagram</a> or <a href="https://www.facebook.com/profile.php?id=100028289570139">Facebook</a> 
+- 📫 Reach me asap: <a href="https://x.com/ritikverma90">Twitter</a> or vermaritik933@gmail.com or <a href="https://www.instagram.com/er_ritikverma/">instagram</a> or <a href="https://www.facebook.com/profile.php?id=100028289570139">Facebook</a> 
 - 💜 Please Subscribe to my channel at Youtube: <a href="https://www.youtube.com/@ritikvermaa"> Click Now </a> 
 - 😄 Passionate about WEB DEV
 ---
